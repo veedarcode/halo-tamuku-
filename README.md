@@ -1,2 +1,1 @@
-# halo-tamuku-
-basic aja sih,
+# perayaan-mati-rasa
